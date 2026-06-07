@@ -40,7 +40,7 @@ I am a detail-oriented Data Analytics professional with a unique background in h
 ### 📫 Let's Connect!
 
 - **Email:** abhi109149@gmail.com
-- **LinkedIn:** [linkedin.com/in/abhishek-kushwaha](https://linkedin.com/in/your-profile-link) - **Location:** Hyderabad, India 📍
+- **LinkedIn:** [linkedin.com/in/abhishek-kushwaha](www.linkedin.com/in/abhishek-kushwaha-241106305) - **Location:** Hyderabad, India 📍
 
 ⭐️ *Fun Fact: My background in Medical Coding and Pharmacy gives me a sharp eye for finding the "cure" to messy data!*
 
